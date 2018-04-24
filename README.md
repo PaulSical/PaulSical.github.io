@@ -1,1 +1,0 @@
-# PaulSical.github.io
